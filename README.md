@@ -1,4 +1,4 @@
-- im not doin that shi/ or its wip
+ im not doin that shi/ or its wip
 
 - hello call me banny or clark 
 - INTT ID LOVE TO MAKE NEW FRIENDS!/ c+hfreelyy i like hugs ok? ok. 
