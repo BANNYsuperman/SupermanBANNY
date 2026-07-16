@@ -5,5 +5,5 @@ im not doing that shi
 - c+h freely yes yes i love hugs ok? ok. 
 - dni under 15 years old
 - 17 years old guy
-
+note: my english is not good. ig. 
    ok bye. :) 
