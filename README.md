@@ -2,7 +2,7 @@
 
 - hello call me banny or clark 
 - INTT ID LOVE TO MAKE NEW FRIENDS!/ c+hfreelyy i like hugs ok? ok. 
-- dni under 15 years old. 
-- 17yearsold guy
+- dni if u gonna be rude. 
+- 17 years old guy
 - note: my english IS NOT GOOD okey? ok!:) 
 - bye ok.. ok... 
