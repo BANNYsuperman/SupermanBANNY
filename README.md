@@ -1,9 +1,8 @@
-im not doing that shi
+Ok im not doin that shi/ or its wip
 
-- hello im banny or call me clark. 
-- id love to make new friends so int!- if you're gonna be mean to me for no reason plz go away/
-- c+h freely yes yes i love hugs ok? ok. 
-- dni under 15 years old
-- 17 years old guy
-note: my english is not good. ig. 
-   ok bye. :) 
+hello call me banny or clark 
+INTT ID LOVE TO MAKE NEW FRIENDS!/ c+hfreelyy i like hugs ok? ok. 
+dni under 15 years old. 
+17yearsold guy
+note: my english IS NOT GOOD okey? ok!:) 
+bye ok.. ok... 
