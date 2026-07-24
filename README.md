@@ -12,3 +12,8 @@
     <img src="https://img.shields.io/badge/✧%20Strawpage-a9d6ff?style=for-the-badge&logo=linktree&logoColor=white">
   </a>
 </p>
+
+ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ꜱᴛɪʟʟ ᴡɪᴘ ꜰᴏʀ ɴᴏᴡ! ʟᴏʟ ɪᴛꜱ ᴀʙᴏᴜᴛ ꜱɪʟʟʏ ꜰᴀɴᴀʀᴛꜱ ʀɴ <3 
+<p align="center">
+  <img src="https://i.postimg.cc/xj4HxjTM/In-Shot-20260724-223807084.jpg" width="100%">
+</p>
