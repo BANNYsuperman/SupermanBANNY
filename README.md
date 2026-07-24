@@ -4,3 +4,11 @@
 <p align="center">
   <img src="https://i.postimg.cc/wMJdK5ZF/1784928664156.png" width="400"> 
 </p>
+<p align="center">
+  <a href="https://supermanbanny.atabook.org">
+    <img src="https://img.shields.io/badge/✦%20Atabook-108ec0?style=for-the-badge&logo=bookstack&logoColor=white">
+  </a>
+  <a href="https://bannysuperman.straw.page">
+    <img src="https://img.shields.io/badge/✧%20Strawpage-a9d6ff?style=for-the-badge&logo=linktree&logoColor=white">
+  </a>
+</p>
