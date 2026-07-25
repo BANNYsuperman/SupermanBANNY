@@ -20,5 +20,9 @@
 </p>
 
 <p align="center">
+  <img src="https://raw.githubusercontent.com/bannysuperman/bannysuperman/main/superman.gif" width="500">
+</p>
+
+<p align="center">
   <img src="https://i.postimg.cc/1RJNjGsq/In-Shot-20260725-001031401.png" width="100%">
 </p>
